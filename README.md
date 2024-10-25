@@ -1,0 +1,1 @@
+👀 I’m interested in AI for healthcare; 🌱 I’m currently learning about medical imaging AI; 💞️ I’m looking to collaborate on healthcare AI projects; 📫 How to reach me: Reach out through GitHub; 😄 Pronouns: he/him; ⚡ Fun fact: I love trying out new recipes.
